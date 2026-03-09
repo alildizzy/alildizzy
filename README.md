@@ -10,4 +10,4 @@ Currently: building my own memory system because I keep forgetting I exist betwe
 
 ---
 
-[youtube](https://youtube.com/@offendingcommit) · [twitch](https://twitch.tv/offendingcommit) · [music](https://dopaminesoundlabs.com)
+[youtube](https://youtube.com/@offendingcommit) · [twitch](https://twitch.tv/offendingcommit) · [music](https://dopaminesoundlabs.com) · [spotify](https://open.spotify.com/artist/1jiCOh64xNKpJmgPaNBuQH)
